@@ -3,7 +3,7 @@
 - torço para o corithians ⚫⚪
 - minha comida favorita é strogonof de frango
 - meu tipo de música favoria é funk e reggae
-- meu maior sonho é ser juiza
+- meu maior sonho é ser juíza
 - adoro filme de terror, romance e fantasia
 - adoro assistir tiktok
 - gosto de algumas musicas da Taylor Swift
