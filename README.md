@@ -2,7 +2,7 @@ Meu nome é nicolly, tenho 15 anos
 🔹insta: @_noguiris 💛
 🔹torço para o corithians ⚫⚪
 🔹minha comida favorita é strogonof de frango
-🔹meu tipo de música avoria é funk e reggae
+🔹meu tipo de música favoria é funk e reggae
 🔹meu maior sonho é ser juiza
 🔹adoro filme de terror, romance e fantasia
 🔹adoro assistir tiktok
